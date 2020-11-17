@@ -3,5 +3,5 @@ Just another repository
 
 Hi Robot!
 
-Dan here, I like coffee and Acai Bowls.
-I've been happy all my life. 
+Dan the Virtual Samurai here, I like coffee and Acai Bowls.
+ 
